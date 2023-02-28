@@ -1,1 +1,0 @@
-# qmitty.github.io
